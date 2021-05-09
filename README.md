@@ -1,3 +1,4 @@
+# my name jalalaldeen . i am 27 years old . i am studing in isac for now . and i dont now if i well complite with them or not / for now i am just trying to achive 102 level .
 # reading-nots 
 ![title](https://www.techtello.com/wp-content/uploads/2020/06/fixed-mindset-vs-growth-mindset-chart.png)
 This is the first line.  
